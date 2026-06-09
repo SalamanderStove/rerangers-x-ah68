@@ -1,4 +1,4 @@
-#  
+#  re:rangers x Script no-ban is the best re:rangers x Script, featuring private server access and auto-upgrade. Safe and powerful for all your needs.
 
 
 
